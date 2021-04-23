@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Jordan Uhe Proflie 2 work in progress place holder
 
 [EDIT HERE](https://github.com/Jordan-Uhe/Proflie/edit/main/README.md).
 
